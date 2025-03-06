@@ -1,3 +1,3 @@
 # Petter 
-holder of TON and BTC Founder of PetX| Marketing Advisor | Global Community Lead | #PetXton
+holder of TON and BTC Founder of PetX| Artist| Global Community Lead | #PetXton
 
